@@ -69,6 +69,7 @@ Inference :
 ![image](https://github.com/mohammedtareeq786/Kuruma_Auto/assets/133824825/65334fdb-7a52-488e-9551-6a1ab2a14938)
 
 
+Portfolio Website : https://sohinirchowdhury98.wixsite.com/bunseki
 
 
 
